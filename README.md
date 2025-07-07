@@ -44,4 +44,4 @@ A：本站所列资源站多数每日更新，可关注“今日更新”标签�
 
 📌 温馨提示：请收藏本页，我们将持续更新“日本AV免费视频榜单”、“无码资源站入口”、“热门女优合集”等实用信息，帮助你快速找到最合适的资源！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/aivi7932/34344 ）</span>
